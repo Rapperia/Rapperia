@@ -8,7 +8,7 @@
 
 <p align="center"
 
-![](https://www.simpleimageresizer.com/_uploads/photos/86c05ca0/tumblr_e873f100ea4092ab850e871756ffbc47_6cf1845d_2048_1_optimized.png)
+![](https://file.garden/Zm-rK-jl3x2Hb48C/CLORINDE)
 
 </p>
 
